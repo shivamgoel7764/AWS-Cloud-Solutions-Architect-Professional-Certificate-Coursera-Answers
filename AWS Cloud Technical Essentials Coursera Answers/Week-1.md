@@ -1,0 +1,7 @@
+![image](https://github.com/shivamgoel7764/AWS-Cloud-Solutions-Architect-Professional-Certificate-Coursera-Answers/assets/103335994/1d79cf85-8363-43bb-ae22-a930a5b66e56)
+![image](https://github.com/shivamgoel7764/AWS-Cloud-Solutions-Architect-Professional-Certificate-Coursera-Answers/assets/103335994/638c5166-ae01-4963-9ae4-5f6230e22e3d)
+![image](https://github.com/shivamgoel7764/AWS-Cloud-Solutions-Architect-Professional-Certificate-Coursera-Answers/assets/103335994/d38d3442-5c15-4516-8c62-8bd968ac7976)
+![image](https://github.com/shivamgoel7764/AWS-Cloud-Solutions-Architect-Professional-Certificate-Coursera-Answers/assets/103335994/1dd7e898-9d1d-414b-8430-ac4c1bb65b6a)
+![image](https://github.com/shivamgoel7764/AWS-Cloud-Solutions-Architect-Professional-Certificate-Coursera-Answers/assets/103335994/12923465-e65b-4aa9-9fbe-c9fffec99917)
+![image](https://github.com/shivamgoel7764/AWS-Cloud-Solutions-Architect-Professional-Certificate-Coursera-Answers/assets/103335994/89f1a957-b04e-48f1-9c59-1f92c88ade1c)
+![image](https://github.com/shivamgoel7764/AWS-Cloud-Solutions-Architect-Professional-Certificate-Coursera-Answers/assets/103335994/686e034e-30cc-4eda-ab08-d2e9a35f2e26)
